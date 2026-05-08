@@ -1,4 +1,4 @@
-
+Canva for macOS instant Panel: blend modes & collaboration offers the most advanced Canva for macOS panel, with blend modes and collaboration. Ideal for professional designers and
 
 
 
